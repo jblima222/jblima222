@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jblima222
+- 👋 Hi, I’m Jaque!
 - 👀 I’m interested in learning and developing myself to gain my first experience in the field of Design.
 - 🌱 I’m currently developing my skills in Illustrator, InDesign, Photoshop, and Procreate.
 - 💞️ I’m looking to collaborate on layout, editorial tasks, and illustration/image manipulation.
